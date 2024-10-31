@@ -4,7 +4,8 @@
 - 💞️ I’m looking to collaborate on creating best jokes ever 
 - 📫 How to reach me - There is no way 0.0 // unless you have outlook
 - 😄 Pronouns: Micheal Jackson's he/he
-- ⚡ Fun fact: 
+- ⚡ Fun fact: Below You can read one of the greates dad jokes
+  
 "Did you know that diarrhea is hereditary?
 it runs in your jeans" (☞ ͡° ͜ʖ ͡°)☞
 
