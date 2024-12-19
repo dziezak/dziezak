@@ -12,6 +12,9 @@ it runs in your jeans" (☞ ͡° ͜ʖ ͡°)☞
 "Why can't your nose be 12 inches long?
 Because then it would be a foot!" (☞ ͡° ͜ʖ ͡°)☞
 
+"I went to the aquarium this weekend, but I didn’t stay long. 
+There’s something fishy about that place." (☞ ͡° ͜ʖ ͡°)☞
+
 <!---
 dziezak/dziezak is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
